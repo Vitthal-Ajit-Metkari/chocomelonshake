@@ -1,1 +1,6 @@
-# chocomelonshake
+# chocomelon-juice
+it is an healthy juice of melon and fruits,
+and it is chocolaty and creamy and taste is so much tasty.
+it is an juice which is simple to make...
+
+please try this and tell me how is it...
